@@ -1,0 +1,5 @@
+# exercicio
+
+##PARCIPANTES 
+_ DOUGLAS KLEMES
+_ THIAGO MENDES
